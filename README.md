@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Sarash Sahu.
+# 👋Hi, I'm Sarash Sahu.
 **🔧 Engineer × 📊 Analyst | 🎓 MCA Student | 💡 Tech-Business Enthusiast | 🎮 Gamer**
 
 ## 🌐 Socials:
